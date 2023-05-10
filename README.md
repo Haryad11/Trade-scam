@@ -1,0 +1,2 @@
+# Trade-scam
+Trade scam
